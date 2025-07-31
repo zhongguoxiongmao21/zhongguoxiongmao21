@@ -1,6 +1,6 @@
 ![Мое фото]([![photo-2025-07-31-16-58-21.jpg](https://i.postimg.cc/nzfY08ZM/photo-2025-07-31-16-58-21.jpg)](https://postimg.cc/7CX2ZW5y))
 
-## I'm beginner data analyst
+## I'm beginner data analyst :rage:
 
 
 
