@@ -1,4 +1,4 @@
-![Мое фото](photo_2025-07-31_16-58-21.jpg)
+![Мое фото](https://postimg.cc/7CX2ZW5y)
 
 ## I'm beginner data analyst
 
