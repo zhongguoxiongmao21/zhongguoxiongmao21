@@ -1,4 +1,4 @@
-[![photo-2025-07-31-16-58-21.jpg](https://i.postimg.cc/nzfY08ZM/photo-2025-07-31-16-58-21.jpg)](https://postimg.cc/7CX2ZW5y)
+[![1.jpg](https://i.postimg.cc/3wJrD1d6/1.jpg)](https://postimg.cc/NKSv3187)
 
 # :sparkles: About me
 * Second-year student at NITU MISIS, Institute of Computer Science.
